@@ -1,3 +1,1 @@
 Love you
-
-Hate you
